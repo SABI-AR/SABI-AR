@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **Sabeerrasheed47@gmail.com**
 
-- ⚡ Fun fact **Python is Deep Once Jump You will hit your Head**
+- ⚡ Fun fact **Python is Deep Once You Jump .You will hit your Head**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
